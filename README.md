@@ -2,7 +2,7 @@
 
 a man of many names, check my rentries to see which ones i currently use the most
 
-enneagram core 7, sanguine, enf something idk check my [rentry](https://rentry.co/-childpsychology) bozo why tf do i gotta spoonfeed info
+enneagram core 7, phlegmatic-sanguine, enf something idk check my [rentry](https://rentry.co/-childpsychology) bozo why tf do i gotta spoonfeed info
 
 prns r any BUT it/its. like wjat!
 
