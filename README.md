@@ -1,4 +1,4 @@
-![](https://cdn.discordapp.com/attachments/887048432097853440/1193379999416324178/ezgif.com-speed.gif?ex=65ac80bb&is=659a0bbb&hm=3342eaf05d802ae559d6d01e0d7087182bd61486cb7f3a70292dc5f54307ff32&)
+[![](https://64.media.tumblr.com/e086aae4f5d90bd8d1df0e36f5cebfcb/b7ea5ed9cdd78bc6-69/s1280x1920/d974d9ffd54432fb3513360fb10e5f164993be8a.gifv)](https://www.tumblr.com/ghostflora-s#)
 
 a man of many names, check my rentries to see which ones i currently use the most
 
