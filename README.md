@@ -2,7 +2,7 @@
 
 a man of many names, check my rentries to see which ones i currently use the most
 
-enneagram core 7, phlegmatic-sanguine, enf something idk check my [rentry](https://rentry.co/-childpsychology) !!!
+enneagram core 7, phlegmatic-sanguine, enf something idk check my [rentry](https://rentry.co/-winnie) !!!
 
 dni under 14s i make ((rare)) exceptions
 
