@@ -2,12 +2,8 @@
 
 a man of many names, check my rentries to see which ones i currently use the most
 
-enneagram core 7, phlegmatic-sanguine, enf something idk check my [rentry](https://rentry.co/-winnie) !!!
+enneagram core 7, phlegmatic-sanguine, enf something idk check my [rentry](https://rentry.co/-winnie) bozo
 
-dni under 14s i make ((rare)) exceptions
+dni under 14s and doubles i make ((rare)) exceptions
 
 chronic mispeller please forgive me if you dont understand what ancient dialect may spawn from my keyboard
-
-doubles of characters i identify as/with pls limit interactions unless if you sneak under my discomfort radar
-
-oh yea btw please dont copy my skins ill sit n stare hopelessly if you do (it's not appreciated).
